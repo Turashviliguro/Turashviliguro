@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Turashviliguro
--Discord: Daddy.#5828
+- Discord: Daddy.#5828
