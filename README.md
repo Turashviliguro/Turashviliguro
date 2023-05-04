@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Turashviliguro
-- Discord: Daddy.#5828
+- Discord: Daddy#2345
 -  https://www.facebook.com/error421/
 - https://www.reddit.com/user/_Turashvili
 - https://twitter.com/__Turashvili
